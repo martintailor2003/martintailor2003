@@ -11,7 +11,8 @@
 - Exploring **data analysis** and **quantitative finance**.  
 
 ## 📈 My Philosophy  
-> *"You don’t need to be a genius; you just need to be smarter than 50% of the competition."*  
+> *"You don’t need to be a genius; you just need to be smarter than your competition."*
+> Time is everything, everything is time.
 
 ## 📬 Contact  
 - **Email**: randommail21201231@gmail.com  
